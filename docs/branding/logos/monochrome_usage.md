@@ -1,0 +1,1 @@
+Monochrome logo usage rules.
